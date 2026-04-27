@@ -1,0 +1,2 @@
+# Content-Maturity-Release-Lifecycle-Playlist-Rotation-Analysis-of-Spain-Top-50-Songs
+The Spanish music market shows unique traits:  • Strong influence of Latin &amp; regional genres • High sensitivity to release freshness • Faster playlist rotation compared to UK/US • Distinct listener behavior around explicit vs clean content maturity For Atlantic Recording Corporation, understanding content lifecycle behavior in Spain.
